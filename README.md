@@ -1,1 +1,1 @@
-# PARUL-LETS-HACK-INDIA-TOUR--SLAYERS
+# CodingGeeks-DTU-Hackathon
